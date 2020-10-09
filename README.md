@@ -1,2 +1,2 @@
 # Freedom Dividend Coin
-Choose Financial Freedom: https://freedomdividendcoin.io/
+Website - [freedomdividendcoin.io](https://freedomdividendcoin.io/)
